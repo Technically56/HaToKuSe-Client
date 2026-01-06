@@ -10,4 +10,4 @@ Demonstration Schedule
 | 15/01/2026 | 09:30-12:00 or 15:00-17:00
 | 16/01/2026 | 09:30-12:00 or 13:30-17:00
 
-**(*)** please email to book a schedule
+**(*)** Please fill out the form using the Classroom link or send email for privacy reasons.
